@@ -1,1 +1,1 @@
-Map of my favorite destionations
+My favorite destinations
